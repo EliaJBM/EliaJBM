@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EliaJBM
 - 👀 I’m interested ...in AI and astronomy 
 - 🌱 I’m currently learning ...something new everyday
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... everything that i can do 
 - 📫 How to reach me ...@e._li.ya
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...i draw sometimes 
